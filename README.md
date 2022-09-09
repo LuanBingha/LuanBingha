@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LuanBingha
 - 👀 I’m interested in start a development my dad's business 
-- 🌱 I’m currently learning public relationship at UNEB
+- 🌱 I’m currently learning public relationship at UFBA
 - 💞️ I’m looking to collaborate on the design 
 - 📫 How to reach me lgcs262@gmail.com
 
